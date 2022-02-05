@@ -11,5 +11,6 @@ If you're still reading - I think I got your attention!
 Hopefully I could be a part of your team and help solving the problems you have (and you also could help me fulfill this dream of mine 😉), so please hit me up:
 - justas.tirevicius@gmail.com
 - +370 653 57467 (Standard tariff applies :))
+- https://github.com/justasti
 
 Thank you and byeeee!
